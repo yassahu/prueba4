@@ -1,1 +1,1 @@
-El archivo d
+El archivo d se cambiará a d2 IVA
